@@ -1,4 +1,4 @@
-#  
+#  rare Script for 3008 is the best 3008 Script, featuring instant win and auto-collect. Safe and powerful for all your needs.
 
 
 
